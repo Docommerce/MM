@@ -1,1 +1,1 @@
-# MM
+#  MM means Marketing Management
